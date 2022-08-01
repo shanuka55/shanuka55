@@ -1,6 +1,6 @@
 # Shanu<h1 align="center">Hi 👋, I'm Shanuka_Lakshan</h1>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=shanuka55&label=Profile%20views&color=0e75b6&style=flat" alt="shanuka55" /> </p>
-<img align="right" alt="Coding" width="400" src="https://www.pngegg.com/en/png-eeqlf">
+<img align="right" alt="Coding" width="400" src="https://www.freepik.com/free-vector/hacker-activity-concept_7964799.htm#query=hacker%20typing%20png&position=16&from_view=search">
 
 - 📫 How to reach me **shanukalakshan5555@gmail.com**
 
